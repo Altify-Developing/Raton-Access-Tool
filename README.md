@@ -1,4 +1,5 @@
 # __This is a promotion for a friendo to try and get attention to this powerful and funny tool :)__
+**If you would like to see more from them please check out their github: https://github.com/S-illy/**
 
 
 > ⚠️ **Warning:**  
