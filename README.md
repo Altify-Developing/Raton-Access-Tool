@@ -1,3 +1,6 @@
+# __This is a promotion for a friendo to try and get attention to this powerful and funny tool :)__
+
+
 > ⚠️ **Warning:**  
 > This project is for personal use only. The author is not responsible for any misuse or damage caused by its use...
 > Also the updated source code will take more to upload, you are free to decompile it
